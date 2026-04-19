@@ -1,1 +1,1 @@
-Prototype Wizard MMO RPG game. Title pending. 
+Prototype Wizard  RPG game. Title pending. 
